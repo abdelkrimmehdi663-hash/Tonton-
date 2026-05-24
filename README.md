@@ -1,1 +1,1 @@
-https://github.com/abdelkrimmehdi663-hash/Tonton-sans-gluten.git
+https://github.com/abdelkrimmehdi663-hash/index.html-sans-gluten.git
